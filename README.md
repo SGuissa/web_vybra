@@ -1,1 +1,2 @@
-This project is for David 
+Website for the artist Vybra aka 
+Big Vybe
