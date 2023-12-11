@@ -1,1 +1,1 @@
-Images for web
+find all graphic images here
